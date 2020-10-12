@@ -13,4 +13,4 @@ Originally named Austin Richard Post, this music sensation was born on July 4, 1
 10. Circles
 # posmalone merch
 [merch](https://shop.postmalone.com/)
-[my favorite store](https://shop.lululemon.com/)
+
