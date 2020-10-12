@@ -14,4 +14,4 @@ Originally named Austin Richard Post, this music sensation was born on July 4, 1
 # postmalone merch
 [merch](https://shop.postmalone.com/)
 ![/uploads/2017/07/post-malone-shareif-ziyadat-1200x1049.jpg](https://files.thehandbook.com/uploads/2017/07/post-malone-shareif-ziyadat-1200x1049.jpg)
-![/wikipedia/commons/2/29/Post_Malone_Stavernfestivalen_2018_%28202156%29.jpg](https://upload.wikimedia.org/wikipedia/commons/2/29/Post_Malone_Stavernfestivalen_2018_%28202156%29.jpg)
+![/wp-content/uploads/2020/03/post-malone.jpg](https://cloud.mp3waxx.com/wp-content/uploads/2020/03/post-malone.jpg)
