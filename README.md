@@ -11,6 +11,6 @@ Originally named Austin Richard Post, this music sensation was born on July 4, 1
 8. Feeling WHitney
 9. Psycho
 10. Circles
-# posmalone merch
+# postmalone merch
 [merch](https://shop.postmalone.com/)
-
+![postmalone, music god](/assets/images/postmalone.png)
